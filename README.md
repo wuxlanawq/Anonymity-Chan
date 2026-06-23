@@ -62,6 +62,10 @@
 
 ---
 
+
 ## 历史（实名酱）
 
 无
+人设图：
+<img width="601" height="616" alt="b2cf32d6-d66e-45a6-94db-235a357ae57a" src="https://github.com/user-attachments/assets/251f5088-9fea-4e39-8f83-0ea624e95f6c" />
+
